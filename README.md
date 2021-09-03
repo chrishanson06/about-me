@@ -1,12 +1,14 @@
 # about-me
 "About Me"
--Want to make that money
--Going to use this money to buy Bitcoins $$$$$
-
---"Dollar Dollar Bills Y'all" Bill Gates
+Need a new career path
+Extra Money for buying Crypto
+Job Security 
 
 
 "For Fun"
-Stripers
---Cocaine
----PowerWashing
+Dodgeball
+Video Games
+Breweries
+
+"Inspiration"
+-"Dollar Dollar Bills Y'all" - Abraham Lincoln
